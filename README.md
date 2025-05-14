@@ -1,2 +1,2 @@
-![rec1](https://github.com/user-attachments/assets/74994131-a562-4abe-98ff-b869e2f3ca17)
-![rec2](https://github.com/user-attachments/assets/2e11eb65-95e6-40d3-9861-636c34c71b99)
+![image](https://github.com/user-attachments/assets/83a6c34d-f651-4cc9-8b8c-e3d3bfb54930)
+![image](https://github.com/user-attachments/assets/d6f4c67b-52b3-46df-8d90-2af8261f1176)
